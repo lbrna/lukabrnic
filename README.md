@@ -1,0 +1,2 @@
+# lukanatali
+strukture
